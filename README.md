@@ -1,6 +1,6 @@
 <div align="center">
 
-![17299961043337037039411543883548](https://github.com/user-attachments/assets/03834c47-183f-4384-9529-722eba24fd4c)
+![17316252080331223906445426674013](https://github.com/user-attachments/assets/e78e038d-4890-467b-a59f-41d38e1020a8)
 
 ✦•┈๑⋅⋯ RINA / RI . SHE / HER ⋯⋅๑┈•✦<br/>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ༒︎ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   
