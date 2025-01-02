@@ -3,7 +3,7 @@
 ![17316254603113223149016975915015](https://github.com/user-attachments/assets/e8385acf-a7a5-49d6-aceb-fe5d0a5e11c8)
 
 
-✦•┈๑⋅⋯ RINA / RI . SHE / HER ⋯⋅๑┈•✦<br/>
+# •┈ RINA / RI . SHE / HER ┈•.<br/>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ༒︎ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   
 afk ( away from keyboard ) ;<br/>
 w2i ( whisper to interact ) ;<br/>
