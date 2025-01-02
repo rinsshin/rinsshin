@@ -13,5 +13,7 @@ dnc ( do not copy ).<br/>
 !!. please do not copy my skins exactly.<br/>
 you can take the idea of color combinations, but please don't copy them completely.
 
+𝙩𝙝𝙖𝙣𝙠𝙨 𝙛𝙤𝙧 𝙛𝙤𝙡𝙡𝙤𝙬𝙞𝙣𝙜!! :з<br/>
+
 ![17316255690712818802524157009217](https://github.com/user-attachments/assets/b34ec122-281f-412e-b02d-59b691215887)
 
