@@ -2,7 +2,7 @@
 
 ![17316254603113223149016975915015](https://github.com/user-attachments/assets/e8385acf-a7a5-49d6-aceb-fe5d0a5e11c8)
 
-#,   .RINA / RI ; SHE / HER .<br/>
+#. ┈ 𝙍𝙄𝙉𝘼 / 𝙍𝙄 . 𝙎𝙃𝙀 / 𝙃𝙀𝙍 ┈.<br/>
 ༒︎<br/> 
 afk ( away from keyboard ) ;<br/>
 w2i ( whisper to interact ) ;<br/>
